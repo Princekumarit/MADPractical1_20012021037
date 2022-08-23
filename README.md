@@ -1,2 +1,13 @@
 # MADPractical1_20012021037
 $ MAD Practical![mad practical](https://user-images.githubusercontent.com/110968249/186203472-dba2a5cd-e7bc-4fdb-a718-f8cd71157b78.jpeg)
+$ Practical1 Q1![WhatsApp Image 2022-08-23 at 8 59 53 PM](https://user-images.githubusercontent.com/110968249/186204153-1ec1df2f-660e-4e21-b8e0-c874c16d21f8.jpeg)
+$ Practical1 Q2![WhatsApp Image 2022-08-23 at 8 59 53 PM (1)](https://user-images.githubusercontent.com/110968249/186204348-e8fc8864-fe56-4345-8181-5b18e4fca651.jpeg)
+$ Practical1 Q3![WhatsApp Image 2022-08-23 at 8 59 53 PM (2)](https://user-images.githubusercontent.com/110968249/186204498-6d11610a-3cf4-4170-ace7-d34ab452526f.jpeg)
+$ Practical1 Q4![WhatsApp Image 2022-08-23 at 8 59 53 PM (3)](https://user-images.githubusercontent.com/110968249/186204576-4634f116-9a31-4403-9ab8-330ebb740845.jpeg)
+$ Practical1 Q5![WhatsApp Image 2022-08-23 at 8 59 53 PM (4)](https://user-images.githubusercontent.com/110968249/186204682-58ebb525-b834-4df0-a2a9-539b32d56f53.jpeg)
+$ Practical1 Q6![WhatsApp Image 2022-08-23 at 8 59 53 PM (5)](https://user-images.githubusercontent.com/110968249/186204769-78e92792-a9b4-4694-a78d-7e65643164c3.jpeg)
+$ Practical1 Q7![WhatsApp Image 2022-08-23 at 8 59 53 PM (6)](https://user-images.githubusercontent.com/110968249/186204858-b0e70035-caf5-4a47-ab25-cc0490a25292.jpeg)
+$ Practical1 Q8![WhatsApp Image 2022-08-23 at 8 59 53 PM (7)](https://user-images.githubusercontent.com/110968249/186204951-dec982d7-8b67-4172-97ab-aa6fc7e24412.jpeg)
+$ Practical1 Q9![WhatsApp Image 2022-08-23 at 8 59 53 PM (8)](https://user-images.githubusercontent.com/110968249/186204994-fbd1e3e8-b7e7-49df-8966-2a0c62be919c.jpeg)
+$ Practical1 Q10![WhatsApp Image 2022-08-23 at 8 59 53 PM (9)](https://user-images.githubusercontent.com/110968249/186205068-3f9b9976-16ea-471a-8c94-aba7dbe51216.jpeg)
+$ Practical1 Q11![WhatsApp Image 2022-08-23 at 8 59 53 PM (10)](https://user-images.githubusercontent.com/110968249/186205125-2747f4c0-1be8-4ad6-ab85-6b74c5eb1474.jpeg)
